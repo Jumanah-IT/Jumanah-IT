@@ -1,4 +1,4 @@
-## Welcome to my GitHub Profile <img src="https://cdn.betterttv.net/emote/611ed56876ea4e2b9f78338c/3x" width="26"/>
+## Welcome to my GitHub Profile <img src="https://cdn.betterttv.net/emote/60ccba43f8b3f62601c3fd0f/3x" width="26"/>
 
 I'm Jumanah,
 
